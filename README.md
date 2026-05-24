@@ -1,12 +1,12 @@
 <img width="1024" height="1024" alt="Ansys 2026 R1" src="https://github.com/user-attachments/assets/0c13ef79-d306-4810-ad43-c1d1697bc6b3" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/ansys-2026-r1/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/ansys-2026-r1/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/ansys-2026-r1/torrent-download
 
 Purchase link :
 
